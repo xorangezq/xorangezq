@@ -18,3 +18,16 @@ Here are some ideas to get you started:
 Welcome.
 
 [This](https://github.com/xorange) was also me, but not anymore.
+
+
+
+---
+
+
+
+You may also find me at wechat:
+
+
+
+![wechatqr_12cm_0.8m](./assets/wechatqr_8cm_0.5m.jpg)
+
